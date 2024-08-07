@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Nhut<br>✍ I'm a student of: Da Nang University of Science and Technology (DUT).<br><br>🌱 I’m currently Third Year
+I'm Nhut<br>✍ I'm learning AI you can call me hoangtuNhat1
 
 
 ## 🌐 Socials:
